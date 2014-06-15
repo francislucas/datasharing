@@ -1,1 +1,0 @@
-aquivo para teste.
